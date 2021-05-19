@@ -1,6 +1,4 @@
 # tableta-grafica-con-pantalla-XP-Pen-Artist-24-Pro-Opiniones
-pantalla gráfica XP-Pen Artist 24 Pro tiene un diseño elegante y muy grande. Es una tableta que cuenta con una pantalla 2.5K QHD de 24 pulgadas.
-
 Desde hace unos años, la famosa marca Wacom ya no es la única que puede ofrecer tabletas gráficas de calidad. Han surgido algunas marcas chinas que le hacen sombra, las mas famosas hasta el momento son las de XP-PEN ( https://www.xp-pen.es ) ,  una marca que está triunfando con una de sus últimos modelos, la XP-Pen Artist 24 Pro, que tiene las mismas prestaciones que una Wacom Cintiq Pro 24 a una tercera parte de su precio. 
 
 Tableta gráfica XP-Pen Artist 24 Pro: la más grande hasta el momento
